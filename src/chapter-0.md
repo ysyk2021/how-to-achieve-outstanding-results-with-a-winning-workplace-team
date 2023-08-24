@@ -1,5 +1,3 @@
-Introduction
-============
 
 In this book, we will explore the importance of building and leading winning workplace teams to achieve outstanding results. We will discuss the characteristics of successful teams, offer tips on how to build and maintain them, and provide examples of winning workplace teams in practice.
 

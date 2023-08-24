@@ -1,5 +1,3 @@
-Chapter 4: Building a Diverse and Inclusive Team
-================================================
 
 Building a diverse and inclusive team is critical for achieving outstanding results in the modern workplace. In this chapter, we'll explore strategies for building and managing a diverse and inclusive team.
 

@@ -1,5 +1,3 @@
-What are Winning Workplace Teams?
-==============================================================================
 
 Winning workplace teams are groups of individuals who work together effectively towards common objectives, achieving outstanding results. In this chapter, we'll explore what winning workplace teams are and why they are important.
 

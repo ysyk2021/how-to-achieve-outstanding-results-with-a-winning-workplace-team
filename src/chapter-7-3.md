@@ -1,5 +1,3 @@
-Celebrating Accomplishments and Milestones
-=========================================================================
 
 In this chapter, we will discuss the importance of celebrating accomplishments and milestones to sustain success in winning workplace teams. We will explore the benefits of recognizing achievements, provide examples of effective celebration practices, and offer tips on how to implement them.
 

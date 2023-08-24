@@ -1,5 +1,3 @@
-Overcoming Barriers to Effective Implementation
-==========================================================================
 
 In this chapter, we will discuss the importance of overcoming barriers to effective implementation when building a winning workplace team. We will explore common barriers to implementation, provide examples of strategies for overcoming these barriers, and offer tips on how to implement winning workplace team strategies effectively.
 

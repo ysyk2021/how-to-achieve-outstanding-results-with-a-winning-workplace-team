@@ -1,5 +1,3 @@
-Chapter 3: Creating a Positive Team Culture
-===========================================
 
 Creating a positive team culture is critical for building and leading winning workplace teams. In this chapter, we'll explore strategies for fostering a positive team culture.
 

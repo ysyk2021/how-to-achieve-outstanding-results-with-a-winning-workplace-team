@@ -1,5 +1,3 @@
-Chapter 8: Future Directions
-============================
 
 As the business landscape continues to evolve, the importance of building and leading winning workplace teams will only continue to grow. In this chapter, we'll explore some future directions for building and leading winning workplace teams.
 

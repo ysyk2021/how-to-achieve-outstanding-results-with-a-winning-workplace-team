@@ -1,5 +1,3 @@
-Managing Diversity Effectively
-================================================================================
 
 In this chapter, we will explore the importance of managing diversity effectively when building a diverse and inclusive team. We will discuss the benefits of diversity and inclusion, provide examples of organizations that have successfully managed diversity, and offer tips on how to manage diversity effectively.
 

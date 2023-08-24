@@ -1,5 +1,3 @@
-Providing Feedback and Recognition
-=====================================================================================
 
 Effective leadership is essential for developing winning workplace teams. In this chapter, we'll explore techniques for providing feedback and recognition as part of effective leadership.
 

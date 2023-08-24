@@ -1,4 +1,4 @@
-# Introduction
+
 
 A winning workplace team is essential for achieving outstanding results in any organization. Whether you are leading a small team or managing a large department, building and maintaining a high-performing team is critical to success.
 

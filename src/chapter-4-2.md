@@ -1,5 +1,3 @@
-Recruiting and Retaining Diverse Talent
-=========================================================================================
 
 In this chapter, we will discuss the importance of recruiting and retaining diverse talent when building a diverse and inclusive team. We will explore the benefits of diversity and inclusion, provide examples of organizations that have successfully recruited and retained diverse talent, and offer tips on how to recruit and retain diverse talent effectively.
 

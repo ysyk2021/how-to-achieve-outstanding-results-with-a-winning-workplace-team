@@ -1,5 +1,3 @@
-Understanding the Impact of Winning Workplace Teams on Organizational Success
-=========================================================================================================================================================
 
 Winning workplace teams have a significant impact on organizational success. In this chapter, we'll explore the ways in which winning workplace teams contribute to organizational success.
 

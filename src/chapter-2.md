@@ -1,5 +1,3 @@
-Chapter 2: The Impact of Winning Workplace Teams on Organizational Success
-==========================================================================
 
 In this chapter, we will discuss the impact that winning workplace teams can have on overall organizational success. We will also explore the costs of not having a winning workplace team and the risks associated with low levels of employee engagement, productivity, and retention.
 

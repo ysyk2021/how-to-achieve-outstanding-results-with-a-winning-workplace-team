@@ -1,5 +1,3 @@
-Promoting Trust and Accountability
-===============================================================================
 
 In this chapter, we will explore the importance of promoting trust and accountability in creating a positive team culture. We will discuss the benefits of trust and accountability, provide examples of organizations with successful trust and accountability practices, and offer tips on how to promote trust and accountability within your team.
 

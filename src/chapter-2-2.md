@@ -1,5 +1,3 @@
-The Costs of Not Having a Winning Workplace Team
-============================================================================================================================
 
 In this chapter, we will discuss the costs associated with not having a winning workplace team. We will explore the impact of dysfunctional teams on organizational success, provide examples of the costs associated with ineffective teams, and offer tips on how to prevent these costs by building and maintaining a winning workplace team.
 

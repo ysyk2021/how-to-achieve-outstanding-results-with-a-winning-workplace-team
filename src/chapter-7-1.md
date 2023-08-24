@@ -1,5 +1,3 @@
-Maintaining and Sustaining Winning Workplace Team Success
-========================================================================================
 
 In this chapter, we will discuss the importance of maintaining and sustaining winning workplace team success over time. We will explore the challenges that can arise after achieving success, provide examples of organizations that have successfully sustained their success, and offer tips on how to maintain and sustain winning workplace team success.
 

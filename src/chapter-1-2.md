@@ -1,5 +1,3 @@
-The Benefits of Winning Workplace Teams
-====================================================================================
 
 Winning workplace teams are groups of individuals who work together effectively towards common objectives, achieving outstanding results. In this chapter, we'll explore the benefits of winning workplace teams.
 

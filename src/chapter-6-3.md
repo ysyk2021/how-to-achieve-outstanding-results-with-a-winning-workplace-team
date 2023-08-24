@@ -1,5 +1,3 @@
-Measuring the Effectiveness of Winning Workplace Team Strategies
-===========================================================================================
 
 In this chapter, we will discuss the importance of measuring the effectiveness of winning workplace team strategies and implementation. We will explore the benefits of measuring effectiveness, provide examples of effective measurement techniques, and offer tips on how to measure the effectiveness of winning workplace team strategies.
 

@@ -1,5 +1,3 @@
-Chapter 6: Implementation
-=========================
 
 In this chapter, we will discuss the implementation of winning workplace team strategies for achieving outstanding results. We will also explore the barriers that can hinder effective implementation and provide tips on how to overcome them. Finally, we will cover how to measure the effectiveness of these strategies.
 

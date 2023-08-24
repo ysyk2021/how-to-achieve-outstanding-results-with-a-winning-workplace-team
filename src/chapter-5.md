@@ -1,5 +1,3 @@
-Chapter 5: Developing Effective Leadership Skills
-=================================================
 
 Effective leadership is critical for building and leading winning workplace teams. In this chapter, we'll explore strategies for developing effective leadership skills.
 

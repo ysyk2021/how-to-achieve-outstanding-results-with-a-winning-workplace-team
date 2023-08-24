@@ -1,5 +1,3 @@
-Examples of Successful Winning Workplace Teams in Practice
-=======================================================================================================
 
 Winning workplace teams are groups of individuals who work together effectively towards common objectives, achieving outstanding results. In this chapter, we'll explore examples of successful winning workplace teams in practice.
 

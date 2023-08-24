@@ -1,5 +1,3 @@
-Communicating Effectively with Team Members
-==============================================================================================
 
 In this chapter, we will explore the importance of effective communication in developing leadership skills and building a winning workplace team. We will discuss the benefits of effective communication, provide examples of organizations with strong communication practices, and offer tips on how to communicate effectively with team members.
 

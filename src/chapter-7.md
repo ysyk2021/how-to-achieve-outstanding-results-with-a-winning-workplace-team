@@ -1,5 +1,3 @@
-Chapter 7: Sustaining Success
-=============================
 
 Building and leading winning workplace teams is not a one-time event. To achieve outstanding results, organizations must be able to sustain success over time. In this chapter, we'll explore strategies for maintaining and sustaining winning workplace team success.
 

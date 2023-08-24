@@ -1,5 +1,3 @@
-Chapter 1: Defining Winning Workplace Teams
-===========================================
 
 In this chapter, we will define winning workplace teams and discuss their benefits. We will also provide examples of successful winning workplace teams in practice.
 

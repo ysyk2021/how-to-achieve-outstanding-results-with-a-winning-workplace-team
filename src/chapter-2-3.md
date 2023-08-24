@@ -1,5 +1,3 @@
-The Risks to Employee Engagement, Productivity, and Retention
-=========================================================================================================================================
 
 In this chapter, we will explore the impact of winning workplace teams on organizational success and the risks posed to employee engagement, productivity, and retention when teams fail to function effectively. We will discuss the importance of team dynamics in achieving outstanding results, provide examples of the risks associated with dysfunctional teams, and offer tips on how to build and maintain a winning workplace team.
 

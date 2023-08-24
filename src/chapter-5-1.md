@@ -1,5 +1,3 @@
-Identifying and Developing Leadership Skills
-===============================================================================================
 
 In this chapter, we will explore the importance of developing effective leadership skills to achieve outstanding results with a winning workplace team. We will discuss how to identify leadership skills, provide examples of effective leadership, and offer tips on how to develop leadership skills.
 
