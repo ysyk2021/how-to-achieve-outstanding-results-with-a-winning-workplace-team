@@ -1,5 +1,4 @@
-Chapter 5: Managing Diversity Effectively
-=========================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we will explore the importance of managing diversity effectively within a winning workplace team. Diversity brings a wide range of perspectives, experiences, and ideas, which can lead to enhanced creativity, innovation, and overall team performance. However, effectively managing diversity requires intentionality, inclusivity, and cultural sensitivity.
 

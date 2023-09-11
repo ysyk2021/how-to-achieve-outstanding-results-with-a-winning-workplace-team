@@ -1,5 +1,4 @@
-Chapter 8: Implementing Winning Workplace Team Strategies for Achieving Outstanding Results
-===========================================================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we will explore the practical steps for implementing winning workplace team strategies that can drive your team towards achieving outstanding results. By following these strategies and leveraging the power of effective teamwork, you can create a high-performing and successful team.
 

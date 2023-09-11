@@ -1,5 +1,4 @@
-Chapter 8: Measuring the Effectiveness of Winning Workplace Team Strategies
-===========================================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 Measuring the effectiveness of winning workplace team strategies is essential to ensure that your team is performing at its best and achieving outstanding results. In this chapter, we will explore different methods and metrics to measure the effectiveness of your team strategies. By implementing these measurement techniques, you can evaluate your team's performance, identify areas for improvement, and refine your strategies for success.
 

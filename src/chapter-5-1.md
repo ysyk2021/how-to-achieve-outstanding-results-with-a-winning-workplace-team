@@ -1,5 +1,4 @@
-Chapter 13: Identifying and Developing Leadership Skills
-========================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we will explore the importance of identifying and developing leadership skills within a winning workplace team. Effective leadership plays a pivotal role in driving outstanding results by inspiring and guiding team members towards success. By identifying and nurturing leadership potential, teams can cultivate strong leaders who can motivate, empower, and lead their teams to achieve exceptional outcomes.
 

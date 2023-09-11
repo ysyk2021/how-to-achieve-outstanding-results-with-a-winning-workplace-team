@@ -1,5 +1,4 @@
-Chapter 14: Addressing New Challenges in Team Building and Leadership
-=====================================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we will discuss the new challenges that arise in team building and leadership and explore strategies to effectively address them. As workplaces evolve and face unique circumstances, leaders must adapt their approaches to build strong teams and lead them towards success.
 

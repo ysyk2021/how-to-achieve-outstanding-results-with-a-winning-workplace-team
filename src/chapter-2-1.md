@@ -1,5 +1,4 @@
-Chapter 7: Understanding the Impact of Winning Workplace Teams on Organizational Success
-========================================================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we will delve into the profound impact that winning workplace teams have on organizational success. A winning team is characterized by high levels of collaboration, trust, and a shared commitment to achieving outstanding results. When organizations prioritize building and nurturing winning workplace teams, they unleash a multitude of benefits that enhance overall performance and drive success.
 

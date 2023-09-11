@@ -1,5 +1,4 @@
-Chapter 12: Celebrating Accomplishments and Milestones
-======================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we will explore the importance of celebrating accomplishments and milestones within a winning workplace team. Recognizing and celebrating achievements is crucial for boosting team morale, reinforcing positive behaviors, and fostering a culture of success. By effectively celebrating accomplishments and milestones, teams can maintain motivation, enhance collaboration, and achieve outstanding results.
 

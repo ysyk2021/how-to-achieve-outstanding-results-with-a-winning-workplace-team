@@ -1,5 +1,4 @@
-Chapter 8: Providing Feedback and Recognition
-=============================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we will explore the importance of providing feedback and recognition within a workplace team. Effective feedback and recognition are key drivers of employee engagement, motivation, and productivity. They contribute to building a positive and high-performing team culture. In this chapter, we will delve into strategies for giving feedback, recognizing achievements, and fostering a culture of continuous improvement.
 

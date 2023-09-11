@@ -1,5 +1,4 @@
-Chapter 11: Addressing Challenges and Setbacks
-==============================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we will explore strategies for addressing challenges and setbacks within a winning workplace team. No team is immune to difficulties or setbacks, but how they respond and overcome these obstacles determines their ultimate success. By effectively addressing challenges, teams can maintain their momentum, learn from setbacks, and achieve outstanding results.
 
